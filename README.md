@@ -1,1 +1,1 @@
-Nama saya Nadya Sulfa Ul-Zannah
+Nama saya Nadya
